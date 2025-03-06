@@ -30,7 +30,7 @@ Bet365 México es mucho más que una plataforma de apuestas; es un ecosistema de
 
 ¡Regístrate hoy en Bet365 y lleva tu experiencia de apuestas y juegos al siguiente nivel!
 
-bet365
+<a href="https://bet365-mx.mx">bet365</a>
 
 bet365 mx
 
